@@ -3,7 +3,7 @@
 - 🌱 I’m currently studying physics and environmental science at the University of Toronto.
 - 🚘 I love working on my car during my free time.
 - 💽 I sometimes cook up some music and DJ.
-- 📌 More on my [portfolio](https://alanjyu).
+- 📌 More on my [portfolio](https://alanjyu.com).
 - 🔍 I'm looking for internships this summer.
 
 ## You say hi?
