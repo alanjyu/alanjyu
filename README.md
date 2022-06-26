@@ -1,7 +1,7 @@
 - 👋 Hi, I'm Alan.
 - 🌱 I'm currently studying geophysics at the University of Toronto.
 - 🚘 I love working on cars during my free time.
-- 💽 I sometimes cook up some music and DJ.
+- 💽 I sometimes cook up music and DJ.
 - 📌 More on my [portfolio](https://alanjyu.com).
 
 
