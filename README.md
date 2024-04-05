@@ -1,2 +1,1 @@
 - I'm currently studying Geophysics at University of Toronto.
-- More on my [portfolio](https://alanjyu.com).
