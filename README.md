@@ -1,4 +1,2 @@
 - I'm currently studying Geophysics at University of Toronto.
-- I enjoy working on my car during my free time.
-- I sometimes make music and DJ.
 - More on my [portfolio](https://alanjyu.com).
